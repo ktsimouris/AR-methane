@@ -1,1 +1,0 @@
-# AR-methaneyk9ajm
